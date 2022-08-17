@@ -1,2 +1,2 @@
 # novo-repositorio
-nc
+ola sou thiago varags pode me falar com traquilidad
